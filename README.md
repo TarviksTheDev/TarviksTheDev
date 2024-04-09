@@ -11,4 +11,4 @@ Here is What I'm working for 👋
 
 📫 How to reach me: rajpurohitvikramdev@gmail.com
 
-⚡ Fun fact: i'm crazy about coding and i'm lazy to.
+⚡ Fun fact: i'm crazy about coding.
